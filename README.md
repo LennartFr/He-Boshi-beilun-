@@ -2,6 +2,8 @@
 
 # [Song Dynasty](https://en.wikipedia.org/wiki/Song_dynasty)
 
+# [Emperor Taizu of Song  927 – 976](https://en.wikipedia.org/wiki/Emperor_Taizu_of_Song)
+
 # Dramatis Personae 
 
 [Wang Anshi](https://en.wikipedia.org/wiki/Wang_Anshi) December 8, 1021 – May 21, 1086), was a Chinese economist, statesman, chancellor and poet of the Song Dynasty who attempted major and controversial socioeconomic reforms known as the New Policies. These reforms constituted the core concepts of the Song-Dynasty Reformists, in contrast to their rivals, the Conservatives, led by the Chancellor Sima Guang.
