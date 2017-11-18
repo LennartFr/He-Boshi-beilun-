@@ -13,3 +13,6 @@ Although Wang had the alliance of such prominent court figures as Shen Kuo, impe
 
 # Wars and Battles of the Song Dynasty
 [Wars and Battles of the Song Dynasty](https://en.wikipedia.org/wiki/List_of_Chinese_wars_and_battles#Song_dynasty_.28960.E2.80.931279.29)
+[Jin Song wars](https://en.wikipedia.org/wiki/Jin%E2%80%93Song_Wars)
+https://upload.wikimedia.org/wikipedia/commons/thumb/4/48/Song_Jin_Wars.jpg/1024px-Song_Jin_Wars.jpg
+
