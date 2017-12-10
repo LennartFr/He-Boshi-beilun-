@@ -20,5 +20,7 @@ Although Wang had the alliance of such prominent court figures as Shen Kuo, impe
 
 [Jin Song wars](https://en.wikipedia.org/wiki/Jin%E2%80%93Song_Wars)
 
+[Jinkang incident](https://en.wikipedia.org/wiki/Jingkang_incident)
+
 <img src="https://upload.wikimedia.org/wikipedia/commons/thumb/4/48/Song_Jin_Wars.jpg/1024px-Song_Jin_Wars.jpg">
 
