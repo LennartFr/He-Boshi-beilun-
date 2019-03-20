@@ -16,6 +16,9 @@ Although Wang had the alliance of such prominent court figures as Shen Kuo, impe
 [Su Shi](https://en.wikipedia.org/wiki/Su_Shi) 8 January 1037 – 24 August 1101. A major personality of the Song era, Su was an important figure in Song Dynasty politics, aligning himself with Sima Guang and others, against the New Policy party led by Wang Anshi. 
 
 # Wars and Battles of the Song Dynasty
+
+[Military History of the Song Dynasty](https://en.wikipedia.org/wiki/Military_history_of_the_Song_dynasty)
+
 [Wars and Battles of the Song Dynasty](https://en.wikipedia.org/wiki/List_of_Chinese_wars_and_battles#Song_dynasty_.28960.E2.80.931279.29)
 
 [Jin Song wars](https://en.wikipedia.org/wiki/Jin%E2%80%93Song_Wars)
