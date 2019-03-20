@@ -35,7 +35,8 @@ Mentor of He bo-shy as witness his preface to He Chiu-fei's book He Boshy Beylue
 
 <img src="https://upload.wikimedia.org/wikipedia/commons/thumb/4/48/Song_Jin_Wars.jpg/1024px-Song_Jin_Wars.jpg">
 
-
+War and the Creation of the Northern Song State
+https://repository.upenn.edu/cgi/viewcontent.cgi?referer=https://www.google.com/&httpsredir=1&article=1630&context=edissertations
 
 
 
