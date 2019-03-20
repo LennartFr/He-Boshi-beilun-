@@ -1,5 +1,7 @@
 # He-Boshi-beilun. 何博士備論
 
+http://www.leeyuri.org/T4-5.pdf
+
 # [Song Dynasty](https://en.wikipedia.org/wiki/Song_dynasty)
 
 # [Emperor Taizu of Song  927 – 976](https://en.wikipedia.org/wiki/Emperor_Taizu_of_Song)
