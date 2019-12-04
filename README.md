@@ -48,6 +48,6 @@ https://baike.baidu.com/item/何博士备论
 
 Books
 
-https://en.wikipedia.org/wiki/Wujing_Zongyao 
+https://en.wikipedia.org/wiki/Wujing_Zongyao 武經總要
 
 
