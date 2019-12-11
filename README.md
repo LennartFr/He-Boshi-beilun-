@@ -1,16 +1,16 @@
 # He-Boshi-beilun. 何博士備論
-
-http://www.leeyuri.org/T4-5.pdf
-
-Editions: http://www.zggdwx.com/skqszmty/-3.html
-
-https://zh.wikisource.org/zh-hans/六國論_(何去非)
-
-# [Song Dynasty](https://en.wikipedia.org/wiki/Song_dynasty)
+  .org/wiki/Song_dynasty)
+  
+  https://books.google.com/books?id=VTq2CAAAQBAJ&pg=PA500&lpg=PA500&dq=he+qu+fei+underemployed&source=bl&ots=MNI2wBPNr4&sig=ACfU3U0nZllZSnEL2kBO3MWFgvalBFNDPw&hl=en&sa=X&ved=2ahUKEwi3gNPjqq7mAhXaIDQIHbz7DsAQ6AEwAHoECAoQAQ#v=onepage&q=he%20qu%20fei%20underemployed&f=false
+  
 
 # [Emperor Taizu of Song  927 – 976](https://en.wikipedia.org/wiki/Emperor_Taizu_of_Song)
 
 # Dramatis Personae 
+
+https://books.google.com/books?id=VTq2CAAAQBAJ&pg=PA500&lpg=PA500&dq=he+qu+fei+underemployed&source=bl&ots=MNI2wBPNr4&sig=ACfU3U0nZllZSnEL2kBO3MWFgvalBFNDPw&hl=en&sa=X&ved=2ahUKEwi3gNPjqq7mAhXaIDQIHbz7DsAQ6AEwAHoECAoQAQ#v=onepage&q=he%20qu%20fei%20underemployed&f=false
+
+
 
 [Wang Anshi](https://en.wikipedia.org/wiki/Wang_Anshi) December 8, 1021 – May 21, 1086), was a Chinese economist, statesman, chancellor and poet of the Song Dynasty who attempted major and controversial socioeconomic reforms known as the New Policies. These reforms constituted the core concepts of the Song-Dynasty Reformists, in contrast to their rivals, the Conservatives, led by the Chancellor Sima Guang.
 Although Wang had the alliance of such prominent court figures as Shen Kuo, imperial scholar-officials such as Su Dongpo and Ouyang Xiu bitterly opposed these reforms on the grounds of tradition. They believed Wang's reforms were against the moral fundamentals of the Two Emperors and would therefore prevent the Song from experiencing the prosperity and peace of the ancients. The tide tilted in favor of the conservatives due to renewed foreign conflict. He was even temporarily removed from power and imprisoned in 1075.
